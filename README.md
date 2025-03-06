@@ -25,11 +25,11 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=50&pause=4800color=RRGGBB&lines=true&vCenter=true&width=815&height=100&lines=DEVELOPER-UNLIMITED+🇹🇿+𝟮𝟬𝟮𝟱)](https://git.io/typing-svg) 
+[![Typing SVG](https://files.catbox.moe/75qrwq.jpg?font=Rockstar-ExtraBold&size=50&pause=4800color=RRGGBB&lines=true&vCenter=true&width=815&height=100&lines=DEVELOPER-UNLIMITED+🇹🇿+𝟮𝟬𝟮𝟱)](https://git.io/typing-svg) 
 
  <a 
 
-<p align="centre"><img src="https://files.catbox.moe/c4svxo.jpg" width="500" heigh
+<p align="centre"><img src="https://files.https://files.catbox.moe/75qrwq.jpg" width="500" heigh
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=50&pause=4000&color=00FF00&lines=true&vCenter=true&width=815&height=100&lines=UNLIMITED!-𝗧𝗘𝗖𝗛+𝗫𝐌𝐃+✌️+𝟮𝟬𝟮𝟱)](https://git.io/typing-svg) 
 
